@@ -9,3 +9,6 @@
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh ini
 [Beneran seru dan berkesan bisa berjuang bareng teman-teman cluster sejauh ini dan makasih banyak buat kakak-kakak fasil yang selalu sabar dan ngerangkul kita dari awal!]
+
+## Harapan Kuliah
+[Harapan saya bisa makin berkembang, nemu banyak pengalaman baru, dan lulus tepat waktu dengan hasil yang memuaskan]
